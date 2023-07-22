@@ -1,2 +1,2 @@
 # GirisCikisui
-bİR 
+Güncel değil yakında gelcek
